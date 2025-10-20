@@ -19,3 +19,11 @@ https://sora.chatgpt.com/
 好用
 
 sora2使用需要邀请码，
+
+购买地址
+
+
+https://fe.dtyuedan.cn/shop/BFB74B07
+
+
+https://aichongzhi.org/
